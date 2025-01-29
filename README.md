@@ -50,7 +50,7 @@ Google Sheets ichida **ma'lumotlar bazasi sifatida** ishlashi uchun **quyidagi q
 
 Ko‘proq tushunish uchun **quyidagi video darsni tomosha qiling**:
 
-➡️ [YouTube video darslik](#) *(Tez orada yuklanadi!)*
+➡️ [YouTube video darslik](https://youtube.com/@zikrullayashinov?si=_MAm1V0WtSIKxyh1) *(Tez orada yuklanadi!)*
 
 ## 🔗 Qo‘shimcha manbalar
 
