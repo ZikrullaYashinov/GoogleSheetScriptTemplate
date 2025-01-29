@@ -54,6 +54,6 @@ Ko‘proq tushunish uchun **quyidagi video darsni tomosha qiling**:
 
 ## 🔗 Qo‘shimcha manbalar
 
-📢 **Telegram kanal:** [@ZikrullaBlog](#)\
+📢 **Telegram kanal:** [@ZikrullaBlog](https://t.me/ZikrullaBlog)\
 💰 **Donate:** [tirikchilik.uz/zikrulla](https://tirikchilik.uz/zikrulla)
 
